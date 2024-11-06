@@ -21,7 +21,6 @@ https://x.com/rr88charity
 https://www.youtube.com/@rr88charity/about
 https://www.pinterest.com/rr88charity/_profile/
 https://vimeo.com/rr88charity
-rr88.charity
 https://gravatar.com/rr88charity
 https://talk.plesk.com/members/rrtamtamcharity.371785/#about
 https://www.tumblr.com/rr88charity
